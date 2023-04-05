@@ -4,7 +4,7 @@
 
 <a href="#"><img src="https://i.imgur.com/y4oV9VV.png" alt="colored line"></a>
 
-USRCOM-POKT: // INITIATE PROTOCOL: GAIA HELIX under FORGING DAWN, APOTHEOSIS STATIS is TRANSCENDENCE...</br>
+USRCOM-POKT: // INITIATE PROTOCOL: GAIA HELIX under FORGING DAWN, APOTHEOSIS STATIS is REMIX...</br>
 
 <a href="#credits"><img src="https://i.imgur.com/y4oV9VV.png" alt="colored line"></a>
 
